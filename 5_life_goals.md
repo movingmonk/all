@@ -2,7 +2,7 @@
 
 0. Akhand Brahmcharya
    1. No unholy thought, no temptation.
-   2. No gils, no porn, no porn.
+   2. No gils, no porn, no alcohol.
    3. Semen retention
 
 1. Leading A.I. expert in the World.
