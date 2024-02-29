@@ -1,3 +1,4 @@
 # Index Page
 
-added a line from my pc.
+deleted one line from vs code
+added a line from vs code
